@@ -11,7 +11,7 @@ I'm mostly a C++/C# developer, but I've also worked with Java, Rust, python3, JS
 
 I hope you enjoyed stalking my profile. Have a fun day, and remember that trans rights are human rights! 🏳‍🌈
 
-P.S: Here is a picture of [my feet](https://i.imgur.com/QjldITp.png) if you're into that kinky shit.
+P.S: Here is a picture of [my sole](https://i.imgur.com/QjldITp.png) if you're into that kinky shit 🌶.
 
 👯‍♀️👯‍👯‍👯‍👯‍
 
@@ -20,17 +20,17 @@ P.S: Here is a picture of [my feet](https://i.imgur.com/QjldITp.png) if you're i
 # Hewwo worrd! 🌍 
 #### 🐾 (Fow fuwies) 😺
 
-i'm **Yahlunna** 🐰 :3c! i'm a cowmputer enwenieer 👩‍💻 and a game devewoper 🎮 OwO
+I'm **Yahlunna** 🐰 :3c! i'm a cowmputew enwenieew 👩‍💻 and a game devewoper 🎮 OwO \*purs\*
 
-i'm a humbre, crever, and beautifur [furry rope bunny](https://www.furaffinity.net/user/yahlunna/) :3c who rikes tuwu code game rogic fowr a riving -w-. I rove tuwu pray competitive or chawenging games, gwet tyed 🧵 ewe, cry abouwt [awessibiwity in media](https://www.destructoid.com/wp-content/uploads/2020/12/274413-DSD1.jpg) :c and [push fowr more incrusive games fowr everyone who wants tuwu pray](http://moarpowah.com/wp-content/uploads/2014/01/Touhou-Easy-Mode.png) ;D, swhitpowst on [twitter](https://twitter.com/yahlunna), code [useress or stuwpid stuff](https://www.reddit.com/r/unrealengine/comments/noz6tp/bad_apple_but_it_is_rendered_in_160k/?utm_source=share&utm_medium=web2x&context=3), gewt leashed uwu by my mawster-sempay and go fur walkies ñwñ, awnd [wickwoll awsent-minded hoomans](https://www.youtube.com/watch?v=dQw4w9WgXcQ) :P \*licks you in the cheek\*
+I'm a humbwe, cwever, and beautifuw [furry rope bunny](https://www.furaffinity.net/user/yahlunna/) :3c who wikes tuwu code game wogic fowr a living -w-. I wuv tuwu pway competitive or chawwenging games, gwet tyed 🧵 e///e, cwy abouwt [accessibiwity in media](https://www.destructoid.com/wp-content/uploads/2020/12/274413-DSD1.jpg) :c and [push fow mowe incwusive games fow evewyone who wants tuwu pway](http://moarpowah.com/wp-content/uploads/2014/01/Touhou-Easy-Mode.png) ;D, swhitpowst on [Twitter](https://twitter.com/yahlunna), code [usewess ow stupid stuff](https://www.reddit.com/r/unrealengine/comments/noz6tp/bad_apple_but_it_is_rendered_in_160k/?utm_source=share&utm_medium=web2x&context=3), gewt leashed uwu by my mawster-sempay and go fur walkies ñwñ but on pwivate I'm not a pewvy x///x, awnd [wickwoww awsent-minded hoomans](https://www.youtube.com/watch?v=dQw4w9WgXcQ) :P \*licks you in the cheek\*
 
-if youwu are rooking fowr exciting projects and repos; or scouting fowr appearing candidates fowr your super chick and unique enterprise/startup: ignore this profire, this ain't a professionar portforio. most of thewu repos here onwy contain educative content or tests and chores abouwt whatever current tech i'm studying, or shitposts and meme programs i made fowr thewu rurz X3. 
+If youwu awe wooking fow exciting pwojects and wepos; ow scouting fow appeawing candidates fow youw supew chick and unyique entewwrise/stawtup: ignowe this pwofiwe, this ain't a pwofessionnyiaah powtfowio. Most of thewe wepos hewe onwy contain educative content or tests and chowes abouwt whatevew cuwwent tech I'm studying (I'm vewy clevew >:3), ow shitposts and meme pwogwams I made fow thewe murs X3. 
 
-i'm mostry a c++/c# deveroper ñ.ñ, buwt i've arso worked with java, rust, python3, js, ruby, etc :E. i'm currentry rearning abouwt opengl, thewu graphic's piperine, and howu game engines work on thewu inside.  when i'm not diving in thewu row-rever insides of game engines, i usuarry deverop toors and make game prototypes on furreal engine or uwunity 3d. Fureal ^W^!
+I'm mostwy a c++/c# devewopaw ñ.ñ, buwt I've awso wowked with Java, Rust, python3, JS, ruby, etc :E. I'm cuwwentwy weawning abouwt OpenGL, thewe gwaphic's pipewinye, and howo game enginyes wowk on thewe inside.  When I'm nyot diving in thewe wow-wevew insides of game enginyes, I usuawwy devewop toows and make game pwototypes on Furreal Enginye or Uwunity 3D. Fureal, it's Unweaw ^W^!
 
-i hope youwu enjoyed starking my profire. have a fun day, and remember thawt trans rights are human rights! ewe 🏳‍🌈
+I hope youwu enjoyed stawking my pwofiwe. Have a fun day, and wemembew thawt twans wights are hooman and fuwies wights! ewe 🏳‍🌈
 
-p.s: hewe is a picture of [my beans](https://i.imgur.com/qjrditp.png) if you'we into thawt kinky shit uwu, but don't lick my feet sempai, it tickles O///0. 
+P.S: hewe is a pictuwe of [my sole beans](https://i.imgur.com/qjrditp.png) if you'we into thawt kinky 🌶 shit uwu, just don't lick 😝👅 them 🦶 sempai, it tickles 🤣🥰🥵 O///0. 
 
 Wuff bye!
 
