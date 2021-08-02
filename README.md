@@ -1,5 +1,5 @@
 # Hello  World! 🌍
-#### 👣 (For humans) 
+#### 👣 (For humans) 😀
 
 I'm **Yahlunna** 🐰 ! I'm a computer engineer 👩‍💻 and a game developer 🎮.
 
@@ -13,10 +13,12 @@ I hope you enjoyed stalking my profile. Have a fun day, and remember that trans 
 
 P.S: Here is a picture of [my feet](https://i.imgur.com/QjldITp.png) if you're into that kinky shit.
 
+👯‍♀️👯‍👯‍👯‍👯‍
 
 
-# Hewwo worrd! 
-#### 🐾 (Fow fuwies) 
+
+# Hewwo worrd! 🌍 
+#### 🐾 (Fow fuwies) 😺
 
 i'm **Yahlunna** 🐰 :3c! i'm a cowmputer enwenieer 👩‍💻 and a game devewoper 🎮 OwO
 
@@ -31,3 +33,5 @@ i hope youwu enjoyed starking my profire. have a fun day, and remember thawt tra
 p.s: hewe is a picture of [my beans](https://i.imgur.com/qjrditp.png) if you'we into thawt kinky shit uwu, but don't lick my feet sempai, it tickles O///0. 
 
 Wuff bye!
+
+👯‍👯‍👯‍👯‍👯‍
