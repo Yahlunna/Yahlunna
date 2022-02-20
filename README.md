@@ -30,7 +30,7 @@ I'm mostwy a c++/c# devewopaw ñ.ñ, buwt I've awso wowked with Java, Rust, pyth
 
 I hope youwu enjoyed stawking my pwofiwe. Have a fun day, and wemembew thawt twans wights are hooman and fuwies wights! ewe 🏳‍🌈
 
-P.S: hewe is a pictuwe of [my sole beans](https://i.imgur.com/qjrditp.png) if you'we into thawt kinky 🌶 shit uwu, just don't lick 😝👅 them 🦶 sempai, it tickles 🤣🥰🥵 O///0. 
+P.S: hewe is a pictuwe of [my sole beans](https://i.imgur.com/QjldITp.png) if you'we into thawt kinky 🌶 shit uwu, just don't lick 😝👅 them 🦶 sempai, it tickles 🤣🥰🥵 O///0. 
 
 Wuff bye!
 
