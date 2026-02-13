@@ -2,8 +2,8 @@
 
 ![image](https://media.tenor.com/Kqz1XRkrblEAAAAM/bunny-bunny202.gif)
 
-I'm a mere hobbyist gamedev, mod maker, and technical/VFX artist.
+I'm a programming teacher, plus a hobbyist gamedev, tech artist and mod maker during my free time.
 
-This is a non professional account. Every repo you can find in my profile is free to use/copy/whatever and falls under The Unlicense unless stated otherwise.
+This is a non professional account. Every repo you can find in my profile is free to clone/duplicate/use/copy/whatever and falls under `The Unlicense` by default unless stated otherwise in the repository.
 
 Trans rights are human rights, furries are cool, stay kinky, have fun! 🐇 
